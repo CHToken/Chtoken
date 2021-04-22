@@ -1,1 +1,1 @@
-CHToken is the #1 first token developed to help in the development of the social media community, computing section aspect to grow the community together with the aids of buying and selling of gadget and resources.
+CHToken is token developed to driven the community in the impact of computing and social lifestyle. Three functions occur during each trade: Reflection, LP & Burn.
